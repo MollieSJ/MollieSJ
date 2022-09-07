@@ -1,0 +1,5 @@
+- 👋 Hi, I’m MollieSJ
+- 👀 I’m interested in disability justice, mutual aid, local government…
+- 🌱 I’m currently learning how to use GitHub and studying for CA Accessibility Specialist (CASp) exam…
+- 💞️ I’m looking to collaborate on accessible procurement and spreading joy they disability culture…
+- 📫 How to reach me ...calendly.com/accessmollie
